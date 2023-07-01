@@ -1,1 +1,1 @@
-# Striver-Sheet-
+# Striver-Sheet
